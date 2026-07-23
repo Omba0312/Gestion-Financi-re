@@ -1,1 +1,1 @@
-# Gestion-Financi-re
+# Gestion-Financière
